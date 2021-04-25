@@ -1,1 +1,2 @@
-Once upon a time, In a oak forest, A wild monke sat on a berry tree nearby was a rushing river. In that river there lived a crocodile and its wife.
+Once upon a time, In a oak forest, A wild monke sat on a berry tree nearby was a rushing river. In that river there lived a crocodile and its wife. The crocodile came to the banks of the river and rested.
+The Kind monke offered the crocodile offered fruits. The crocodile came back the next day for more fruits. As days passed by, The crocodile and the monke became good friends. One day monke sent some fruits for the crocodile wife, She ate the fruits and liked them, but was jealous as she didnt like her husband spending time for the monke
